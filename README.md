@@ -1,9 +1,8 @@
-# Teresia Mamrema Mbiu
+ Teresia Mamrema Mbiu
 
-👩‍💻 **UI/UX Designer** | 🇰🇪 Nairobi, Kenya  
-📐 Passionate about crafting seamless, user-centric digital experiences.
+UI/UX Designer** | 🇰🇪 Nairobi, Kenya  
+ Passionate about crafting seamless, user-centric digital experiences.
 
----
 
 ##  About Me
 
